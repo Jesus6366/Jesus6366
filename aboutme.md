@@ -5,7 +5,7 @@ I have always been fascinated by technology in general, smartphones, computers, 
 
 I have an unfinished, systems and industrial engineer degree.
 
-Right now, I am trying to learn how to be a web developer on my own with free courses mainly and a program called Next One Education by Oracle and Alura Latin, hopefully I will be able to be a self-taught software developer.
+Right now, I am trying to learn how to be a web developer on my own with free courses mainly and a 6 months program called Next One Education by Oracle and Alura Latin, hopefully I will be able to be a self-taught software developer.
 
 You can reach me on my linkedIn profile https://www.linkedin.com/in/jesus-jose-martha-laborin-a3a55015a/.
 
